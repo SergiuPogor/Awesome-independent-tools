@@ -387,6 +387,7 @@ Collect the latest and most practical free tools and resources in the field of i
 - [High Paying Affiliate Programs](https://highpayingaffiliateprograms.com/) - Helps marketers promote these programs, with commissions typically over 30%.
 - [Product Hunt Top 3 Strategy](https://mp.weixin.qq.com/s/Nlth1disb61qyK722x5C_A)
 - [310 Niche Websites to Promote Your Product](https://x.com/lxfater/status/1866339428773572992)
+- [MEDIAPRONET](https://mediapronet.com/) - Curated directory where founders list new startups, SaaS tools and indie products.
 
 ### Logo Design
 
